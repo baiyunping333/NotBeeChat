@@ -1,1 +1,1 @@
-# NotBeeChat
+# Not shit BeeChat
